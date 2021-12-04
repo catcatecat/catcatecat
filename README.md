@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @catcatecat
-- 👀 I’m interested in art, history and game
+- 👀 I’m interested in art, history food and game
 - 💞️ I’m looking to collaborate on designers, UX designers
 - 📫 How to reach me limanwei.archt@outlook.com
 
