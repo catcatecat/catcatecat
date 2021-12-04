@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @catcatecat
 - 👀 I’m interested in art, history food and game
-- 💞️ I’m looking to collaborate on designers, curators, Interior architects, UX designers.
+- 💞️ I’m looking to collaborate on designers, curators, interior architect, UX designers.
 - 📫 How to reach me limanwei.archt@outlook.com
 
 <!---
